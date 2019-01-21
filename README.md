@@ -25,3 +25,6 @@
 ![](https://ws1.sinaimg.cn/thumbnail/44cd29daly1fze4ffv4svj25hr3whkjy.jpg)
 
 ![](https://ws1.sinaimg.cn/large/44cd29daly1fze4huy4baj20lu0jiwil.jpg)
+
+
+[德合作智能网联汽车、车联网标准及测试验证试点示范项目四川试验基地](https://www.sczbbx.com/Project/ShowProject.aspx?pid=38c06a88-5423-4be8-ace1-9e9fd8d2982c)
